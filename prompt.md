@@ -1,3 +1,5 @@
+<img width="864" height="1821" alt="ChatGPT Image May 25, 2026, 12_08_36 AM" src="https://github.com/user-attachments/assets/15096dda-abc9-4670-8cf6-d399b5e5d83c" />
+
 ==================================================
 PROMPT 1 — KEYWORD RESEARCH
 ==================================================
