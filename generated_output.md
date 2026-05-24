@@ -1,3 +1,5 @@
+<img width="944" height="1666" alt="ChatGPT Image May 24, 2026, 11_25_52 PM" src="https://github.com/user-attachments/assets/1bd68ab1-5324-41e2-ba06-7fdae5ec4cbb" />
+
 # AI SEO Blog & Content Cluster Generator
 ## For a Coaching Institute in Bhilwara, Rajasthan
 
